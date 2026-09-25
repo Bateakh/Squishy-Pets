@@ -14,4 +14,4 @@ Our game is designed to be family-friendly and safe for players of all ages. We 
 
 ### 3. Contact Us
 If you have any questions about this Privacy Policy, please contact us at:
-**Email:** your-email@example.com
+Bateakh@outlook.com
